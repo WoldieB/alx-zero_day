@@ -1,1 +1,1 @@
-My first readme
+I am Alx africa SE student now !!
